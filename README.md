@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **aniketbhatia9@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QRgO7IyDSx4nTciqAgBATQppLN7kaYfl/view?usp=drive_link](https://drive.google.com/file/d/1QRgO7IyDSx4nTciqAgBATQppLN7kaYfl/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/14nt6DliND9VEqzya_hL-OAH7jxDBwpQ9/view?usp=sharing)- 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
